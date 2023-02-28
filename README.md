@@ -6,23 +6,15 @@
 
 **Hot Chocolate -**
 
-150ml of Milk 
-
-75ml of Heavy Cream 
-
-75ml of Evaporated Milk 
-
-**OR**
-
-300ml of Milk 
+600ml of Milk 
 
 **THEN**
 
-3/4 Pinches of Cinnamon
+1/2 teaspoon of Cinnamon
 
-1/2 Pinches of Ground Nutmeg
+1/4 teaspoon of Ground Nutmeg
 
-40g? Chocolate (non-baking, potentially bourneville chocolate equivalent to roughly 7 squares around 50-60)
+40g Chocolate
 
 1 tbsp of Cocoa Powder 
 
@@ -31,10 +23,6 @@
 Small Pinch of Salt
 
 1 tbsp of soft light brown sugar 
-
-**OR** 
-
-1 tbsp of maple syrup
 
 
 
@@ -49,18 +37,14 @@ Can of Whipped Cream
 
 Cocoa Powder
 
-Biscoff Biscuit
-
-Terry's Chocolate Orange
-
-Marshmallow(s)
+1/2 of a Flake (one for each)
 
 
 ### Method :
 
 Simmer the Milk / Milk, Cream, Evaporated Milk. 
 
-Add the Cinnamon, Nutmeg, Vanilla Extract, Cocoa Powder, Salt and Brown Sugar/Maple Syrup to the milk. 
+Add the other ingredients to the milk. 
 
 Simmer and whisk together until theres no clumps.
 
