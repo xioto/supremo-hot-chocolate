@@ -16,7 +16,7 @@
 
 1 tbsp of Cocoa Powder 
 
-1/4 tsp of vanilla extract
+1/2 tsp of vanilla extract
 
 Small Pinch of Salt
 
