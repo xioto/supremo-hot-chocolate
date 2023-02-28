@@ -8,8 +8,6 @@
 
 600ml of Milk 
 
-**THEN**
-
 1/2 teaspoon of Cinnamon
 
 1/4 teaspoon of Ground Nutmeg
@@ -23,7 +21,6 @@
 Small Pinch of Salt
 
 1 tbsp of soft light brown sugar 
-
 
 
 
