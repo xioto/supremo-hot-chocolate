@@ -41,7 +41,7 @@ Cocoa Powder
 
 Simmer the Milk / Milk, Cream, Evaporated Milk. 
 
-Add the # The Hot Chocolate 
+# Hot Cothocolate 
 # V2 
 
 ## Serves 2 (500ml)
