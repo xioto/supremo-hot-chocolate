@@ -109,7 +109,7 @@ Pour into a mug and add a swirl of Whipped Cream and use a mini sieve to dust Co
 * 1-2 tsp of Maple Syrup (to taste)
 * 1 tbsp granulated sugar 
 
-
+** 250ml Recipe **
 
 * 1/4 tsp Cinnamon
 
