@@ -1,4 +1,4 @@
-# The Hot Chocolate 
+# **The Hot Chocolate**
 # V2 
 
 ## Serves 2 (500ml)
