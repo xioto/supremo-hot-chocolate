@@ -111,4 +111,15 @@ Pour into a mug and add a swirl of Whipped Cream and use a mini sieve to dust Co
 
 
 
+* 1/4 tsp Cinnamon
+
+* Pinch of Ground Nutmeg
+
+* 3 tsp Cocoa Powder 
+
+* 3 tsp Light Brown Sugar 
+
+* Small Pinch of Salt
+
+
 35ml (2-3 tbsp)
