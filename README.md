@@ -1,1 +1,1 @@
-List of Hot Chocolate Recipe Servings at various quantities
+List of Hot Chocolate Recipe Servings at Various Quantities
